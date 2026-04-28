@@ -45,3 +45,13 @@ title: Hỏi đáp lớp Thiền Quán Niệm Tứ Đại
 - [Có nên suy nghĩ về mối quan hệ giữa các đại khi hành thiền?](https://youtu.be/VvLs2q9WmmM&t=7840)
 - [Một số phần khó cảm nhận đặc tính hơn các phần khác phải làm sao? Cảm nhận tính rắn khi đang quan sát tính đẩy có phải do căng thẳng?](https://youtu.be/VvLs2q9WmmM&t=8080)
 - [Phân biệt luồng khí vào ra ở mũi (Anapana) với tính đẩy của gió](https://youtu.be/VvLs2q9WmmM&t=8498)
+
+## Buổi số 4
+
+- [Hơi thở ra vào không phải là yếu tố gió](https://youtu.be/DJsXGZf-qQU&t=2261)
+- [Có cần xác định trước ngồi thiền trong bao lâu không?](https://youtu.be/DJsXGZf-qQU&t=2558)
+- [Cảm giác có luồng điện chạy trên đầu có sao không?](https://youtu.be/DJsXGZf-qQU&t=2687)
+- [Khó phân định sự đẩy của gió với hơi thở trong lồng ngực](https://youtu.be/DJsXGZf-qQU&t=3080)
+- [Mất tập trung khi chuyển sự chú ý từ ngực xuống bụng](https://youtu.be/DJsXGZf-qQU&t=3320)
+- [Quan sát hơi thở trước rồi quan sát tính đẩy của yếu tố gió? Quét yếu tố Đất từng ngón tay/chân hay cả bàn tay/chân?](https://youtu.be/DJsXGZf-qQU&t=3780)
+- [Cảm nhận như có sâu bọ ở trên đầu lúc quan sát có sao không?](https://youtu.be/DJsXGZf-qQU&t=4050)
