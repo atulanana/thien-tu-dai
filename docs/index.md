@@ -55,3 +55,11 @@ title: Hỏi đáp lớp Thiền Quán Niệm Tứ Đại
 - [Mất tập trung khi chuyển sự chú ý từ ngực xuống bụng](https://youtu.be/DJsXGZf-qQU&t=3320)
 - [Quan sát hơi thở trước rồi quan sát tính đẩy của yếu tố gió? Quét yếu tố Đất từng ngón tay/chân hay cả bàn tay/chân?](https://youtu.be/DJsXGZf-qQU&t=3780)
 - [Cảm nhận như có sâu bọ ở trên đầu lúc quan sát có sao không?](https://youtu.be/DJsXGZf-qQU&t=4050)
+
+## Buổi số 5
+
+- [Trình pháp Đạo hữu Thanh](https://youtu.be/3S6WBKTx1Oo&t=3132)
+- [Trình pháp Đạo hữu Tín Duyên](https://youtu.be/3S6WBKTx1Oo&t=3426)
+- [Trình pháp Đạo hữu Phương Tô](https://youtu.be/3S6WBKTx1Oo&t=3743)
+- [Sự lưu thông của máu có phải yếu tố gió? Sức nặng của tay trên đùi, chân trên sàn có phải yếu tố đất?](https://youtu.be/3S6WBKTx1Oo&t=4368)
+- [Bị cúi đầu về phía trước có cần chỉnh lại tư thế?](https://youtu.be/3S6WBKTx1Oo&t=5084)
