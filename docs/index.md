@@ -19,7 +19,7 @@ title: Hỏi đáp lớp Thiền Quán Niệm Tứ Đại
 - [Có phải giữ nguyên tư thế từ đầu đến cuối?](https://youtu.be/10MdsOWwKZU&t=6414)
 - [Khi quán các bộ phận đối xứng (tay, chân), quán 1 bên hay 2 bên cùng lúc?](https://youtu.be/10MdsOWwKZU&t=6595)
 - [Tính đẩy liên quan yếu tố gió: gió bên trong cơ thể hay gió bên ngoài tác động?](https://youtu.be/10MdsOWwKZU&t=6805)
-- [Duỗi chân được không? Quán chỗ nào cảm nhận rõ trước hay phải theo trình tự?](https://youtu.be/10MdsOWwKZU&t=7544)
+- [Duỗi chân được không? Quán chỗ nào cảm nhận rõ trước hay phải theo trình tự?](https://youtu.be/10MdsOWwKZU&t=7004)
 - [Đau vai trái, cần điều chỉnh thế nào?](https://youtu.be/10MdsOWwKZU&t=7205)
 - [Cảm nhận hơi thở một bên lỗ mũi là như thế nào?](https://youtu.be/10MdsOWwKZU&t=7389)
 - [Làm gì khi cảm nhận nặng ở vùng ngực khi quan sát hơi thở?](https://youtu.be/10MdsOWwKZU&t=7630)
