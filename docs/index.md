@@ -58,8 +58,28 @@ title: Hỏi đáp lớp Thiền Quán Niệm Tứ Đại
 
 ## Buổi số 5
 
-- [Trình pháp Đạo hữu Thanh](https://youtu.be/3S6WBKTx1Oo&t=3132)
+- [Trình pháp Đạo hữu Yến Thanh](https://youtu.be/3S6WBKTx1Oo&t=3132)
 - [Trình pháp Đạo hữu Tín Duyên](https://youtu.be/3S6WBKTx1Oo&t=3426)
 - [Trình pháp Đạo hữu Phương Tô](https://youtu.be/3S6WBKTx1Oo&t=3743)
 - [Sự lưu thông của máu có phải yếu tố gió? Sức nặng của tay trên đùi, chân trên sàn có phải yếu tố đất?](https://youtu.be/3S6WBKTx1Oo&t=4368)
 - [Bị cúi đầu về phía trước có cần chỉnh lại tư thế?](https://youtu.be/3S6WBKTx1Oo&t=5084)
+
+## Buổi số 6
+
+- [Trình pháp Đạo hữu Diệu Tịnh](https://www.youtube.com/watch?v=NMvJ5So-5QQ&t=312s)
+	- Bị sao lãng thất niệm, phải quay lại từ đầu hay tiếp tục từ chỗ bị sao lãng
+	- Khi quan sát, làm sao biết mình đang hành đúng mà không phải là phát triển các đặc tính do nỗ lực quá mức?
+	- Khi quan sát đặc tính rắn, có quan sát phần cơ thịt mềm không hay chỉ quan sát phần xương?
+	- Khi có cơn đau nên quan sát như thế nào?
+
+- [Trình pháp Đạo hữu Vũ Thanh Thảo](https://www.youtube.com/watch?v=NMvJ5So-5QQ&t=1202s)
+	- Khi thất niệm có nên đổi tư thế cho tỉnh táo, định tâm lại?
+	- Không cảm nhận được tính đẩy từ đùi trở xuống phải làm sao?
+
+- [Trình pháp Đạo hữu Đức Bình](https://www.youtube.com/watch?v=NMvJ5So-5QQ&t=1690s)
+	- Khi thực hành thiền hơi thở, làm sao không bị phân tâm bởi âm thanh, hình ảnh loáng thoáng xuất hiện?
+	
+- [Trình pháp Đạo hữu Thúy Vi](https://www.youtube.com/watch?v=NMvJ5So-5QQ&t=1980s)
+	- Đau bụng khi ngồi thiền, cơn đau lên xuống có phải sự đẩy của yếu tố gió?
+	- Quán chiếu cơn đau là thọ khổ, biến đổi sanh diệt của yếu tố gió và đất có đúng không?
+	- Khi quán hơi thở, có cơn gió mạnh hất vào mặt, đẩy người ngửa ra đằng sau cần ghi nhận thế nào?
