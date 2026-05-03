@@ -83,3 +83,26 @@ title: Hỏi đáp lớp Thiền Quán Niệm Tứ Đại
 	- Đau bụng khi ngồi thiền, cơn đau lên xuống có phải sự đẩy của yếu tố gió?
 	- Quán chiếu cơn đau là thọ khổ, biến đổi sanh diệt của yếu tố gió và đất có đúng không?
 	- Khi quán hơi thở, có cơn gió mạnh hất vào mặt, đẩy người ngửa ra đằng sau cần ghi nhận thế nào?
+
+## Buổi số 7
+
+- [Trình pháp Đạo hữu Kim Võ](https://www.youtube.com/watch?v=-7se8SdV9Gc&t=3198s)
+
+- [Trình pháp Đạo hữu Nguyễn Văn Long](https://www.youtube.com/watch?v=-7se8SdV9Gc&t=3762s)
+	- Quan sát tính đẩy từ ngực xuống bụng rồi lên đầu. Khi quan sát trên đầu có tác ý đẩy lên đỉnh đầu, cảm thấy giật giật trên đỉnh đầu một lúc. Như vậy có đúng không?
+	- Quan sát tính đẩy từ trong ra ngoài hay dọc cơ thể? Quan sát thấy ở ngực và bụng có tính đấy ngang, ở tay chân có tính đẩy dọc, có đúng không?
+
+- [Trình pháp Đạo hữu Tuyết Nguyễn](https://www.youtube.com/watch?v=-7se8SdV9Gc&t=4740s)
+
+- [Trình pháp Đạo hữu Lê Quang Anh](https://www.youtube.com/watch?v=-7se8SdV9Gc&t=5959s)
+	- Làm thể nào để lấy lại sự tập trung khi bị phóng tâm?
+	- Dùng ghế hỗ trợ khi ngồi thiền có được không?
+
+- [Trình pháp Đạo hữu Doan Dong](https://www.youtube.com/watch?v=-7se8SdV9Gc&t=6608s)
+	- Có cần đạt các tầng thiền trước khi chuyển sang vipassana không?
+	- Có nên lo ngại rằng thiền định nhiều sẽ tạo ra sự dính mắc trong trạng thái tĩnh lặng hoàn hỉ mà không thể chuyển sang thiền tuệ (vipsassana) không?
+
+- [Trình pháp Đạo hữu Nguyen Ha](https://www.youtube.com/watch?v=-7se8SdV9Gc&t=6873s)
+	- Thấy mệt mỏi, khó thở khi quan sát hơi thở phải làm sao?
+	
+- [Làm gì khi nuốt nước miếng khi hành thiền?](https://www.youtube.com/watch?v=-7se8SdV9Gc&t=7115s)
