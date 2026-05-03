@@ -99,8 +99,8 @@ title: Hỏi đáp lớp Thiền Quán Niệm Tứ Đại
 	- Dùng ghế hỗ trợ khi ngồi thiền có được không?
 
 - [Trình pháp Đạo hữu Doan Dong](https://www.youtube.com/watch?v=-7se8SdV9Gc&t=6608s)
-	- Có cần đạt các tầng thiền trước khi chuyển sang vipassana không?
-	- Có nên lo ngại rằng thiền định nhiều sẽ tạo ra sự dính mắc trong trạng thái tĩnh lặng hoàn hỉ mà không thể chuyển sang thiền tuệ (vipsassana) không?
+	- Có cần đạt các tầng thiền trước khi chuyển sang Vipassanā không?
+	- Có nên lo ngại rằng thiền định nhiều sẽ tạo ra sự dính mắc trong trạng thái tĩnh lặng hoàn hỉ mà không thể chuyển sang thiền tuệ (Vipassanā) không?
 
 - [Trình pháp Đạo hữu Nguyen Ha](https://www.youtube.com/watch?v=-7se8SdV9Gc&t=6873s)
 	- Thấy mệt mỏi, khó thở khi quan sát hơi thở phải làm sao?
