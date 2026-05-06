@@ -106,3 +106,13 @@ title: Hỏi đáp lớp Thiền Quán Niệm Tứ Đại
 	- Thấy mệt mỏi, khó thở khi quan sát hơi thở phải làm sao?
 	
 - [Làm gì khi nuốt nước miếng khi hành thiền?](https://www.youtube.com/watch?v=-7se8SdV9Gc&t=7115s)
+
+## Buổi số 8
+
+- [Điều chỉnh tư thế do đau chân](https://www.youtube.com/watch?v=5hao-0l7uaE&t=280s)
+- [Phải làm gì khi hơi thở trở nên rất nhẹ?](https://www.youtube.com/watch?v=5hao-0l7uaE&t=533s)
+- [Cảm giác nóng bức và toát mồ hôi khi thiền cần làm gì?](https://www.youtube.com/watch?v=5hao-0l7uaE&t=718s)
+- [Mệt mỏi, toát mồ hôi khi quan sát hơi thở?](https://www.youtube.com/watch?v=5hao-0l7uaE&t=1022s)
+- [Tư thế ngồi với bệnh giãn tĩnh mạch chân](https://www.youtube.com/watch?v=5hao-0l7uaE&t=1448s)
+- [Nghe thấy tiếng nói thì thầm khi hành thiền](https://www.youtube.com/watch?v=5hao-0l7uaE&t=1650s)
+- [Trình pháp Đạo hữu Mighty Fuku](https://www.youtube.com/watch?v=5hao-0l7uaE&t=2430s)
