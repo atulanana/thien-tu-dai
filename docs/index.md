@@ -126,6 +126,7 @@ Không có câu hỏi
 - [Thiền hành trong công viên có cần quay đầu hay đi thẳng?](https://www.youtube.com/watch?v=7pcmlQ4dqqs&t=3220s)
 - [Có lộ trình tăng dần số bước chân không?](https://www.youtube.com/watch?v=7pcmlQ4dqqs&t=3435s)
 - [Cần làm gì khi có suy nghĩ hoặc cảm thọ khởi sinh trong lúc đang đi kinh hành?](https://www.youtube.com/watch?v=7pcmlQ4dqqs&t=3575s)
+- [Nên đi kinh hành khoảng bao lâu?](https://www.youtube.com/watch?v=7pcmlQ4dqqs&t=3648s)
 - [Trình pháp Đạo hữu Kim Võ](https://www.youtube.com/watch?v=7pcmlQ4dqqs&t=3795s)
 	- Nhận biết cảm giác ấm/mát của hơi thở có đúng không?
 	- Nhận biết cảm giác ấm/mát của hơi thở có đúng không?
