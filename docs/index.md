@@ -116,3 +116,25 @@ title: Hỏi đáp lớp Thiền Quán Niệm Tứ Đại
 - [Tư thế ngồi với bệnh giãn tĩnh mạch chân](https://www.youtube.com/watch?v=5hao-0l7uaE&t=1448s)
 - [Nghe thấy tiếng nói thì thầm khi hành thiền](https://www.youtube.com/watch?v=5hao-0l7uaE&t=1650s)
 - [Trình pháp Đạo hữu Mighty Fuku](https://www.youtube.com/watch?v=5hao-0l7uaE&t=2430s)
+
+## Buổi số 9
+Không có câu hỏi
+
+## Buổi số 10
+
+- [Thiền hành trên bãi biển, cần chú ý gì?](https://www.youtube.com/watch?v=7pcmlQ4dqqs&t=3072s)
+- [Thiền hành trong công viên có cần quay đầu hay đi thẳng?](https://www.youtube.com/watch?v=7pcmlQ4dqqs&t=3220s)
+- [Có lộ trình tăng dần số bước chân không?](https://www.youtube.com/watch?v=7pcmlQ4dqqs&t=3435s)
+- [Cần làm gì khi có suy nghĩ hoặc cảm thọ khởi sinh trong lúc đang đi kinh hành?](https://www.youtube.com/watch?v=7pcmlQ4dqqs&t=3575s)
+- [Trình pháp Đạo hữu Kim Võ](https://www.youtube.com/watch?v=7pcmlQ4dqqs&t=3795s)
+	- Nhận biết cảm giác ấm/mát của hơi thở có đúng không?
+	- Nhận biết cảm giác ấm/mát của hơi thở có đúng không?
+	- Cách giữ tâm bớt xao nhãng trong các hoạt động hàng ngày
+- [Trình pháp Đạo hữu Phương Tô](https://www.youtube.com/watch?v=7pcmlQ4dqqs&t=4380s)
+	- Phân biệt giữa quan sát hơi thở (Anapanasati) và sự phồng xẹp ở bụng.
+	- Cách khắc phục tình trạng buồn ngủ và trùn lưng khi thiền.
+- [Trình pháp Đạo hữu Uyên Ngô](https://www.youtube.com/watch?v=7pcmlQ4dqqs&t=4948s)
+	- Lời khuyên thiền tập cho người có bệnh lý khó thở hoặc hay bị hụt hơi
+- [Trình pháp Đạo hữu Tama Le](https://www.youtube.com/watch?v=7pcmlQ4dqqs&t=5428s)
+	- Sự khác biệt giữa sự tập trung khi học tập/làm việc và sự định tâm trong thiền
+
