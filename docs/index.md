@@ -139,3 +139,8 @@ Không có câu hỏi
 - [Trình pháp Đạo hữu Tama Le](https://www.youtube.com/watch?v=7pcmlQ4dqqs&t=5428s)
 	- Sự khác biệt giữa sự tập trung khi học tập/làm việc và sự định tâm trong thiền
 
+## Buổi số 11
+
+- [Trình pháp Đạo hữu Phương Tô](https://www.youtube.com/watch?v=sHp9yUbVNYY&t=3230s)
+	- Khi đi kinh hành bị mất thăng bằng do đi chậm?
+- [Không gian hẹp trong nhà có đi kinh hành được không?](https://www.youtube.com/watch?v=sHp9yUbVNYY&t=3508s)
