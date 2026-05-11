@@ -144,3 +144,10 @@ Không có câu hỏi
 - [Trình pháp Đạo hữu Phương Tô](https://www.youtube.com/watch?v=sHp9yUbVNYY&t=3230s)
 	- Khi đi kinh hành bị mất thăng bằng do đi chậm?
 - [Không gian hẹp trong nhà có đi kinh hành được không?](https://www.youtube.com/watch?v=sHp9yUbVNYY&t=3508s)
+
+## Buổi số 12
+
+- [Trình pháp Đạo hữu Thanh Trương](https://www.youtube.com/watch?v=FckuEfBVGN0&t=3415s)
+- [Trình pháp Đạo hữu Đức Bình](https://www.youtube.com/watch?v=FckuEfBVGN0&t=4278s)
+- [Khi quan sát hơi thở thấy căng vùng mắt và nhìn thấy ánh sáng xuất hiện](https://www.youtube.com/watch?v=FckuEfBVGN0&t=4994s)
+- [Chân bị nóng lên rất nhiều khi quán tính đẩy ở vùng đùi](https://www.youtube.com/watch?v=FckuEfBVGN0&t=5781s)
