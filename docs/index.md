@@ -151,3 +151,17 @@ Không có câu hỏi
 - [Trình pháp Đạo hữu Đức Bình](https://www.youtube.com/watch?v=FckuEfBVGN0&t=4278s)
 - [Khi quan sát hơi thở thấy căng vùng mắt và nhìn thấy ánh sáng xuất hiện](https://www.youtube.com/watch?v=FckuEfBVGN0&t=4994s)
 - [Chân bị nóng lên rất nhiều khi quán tính đẩy ở vùng đùi](https://www.youtube.com/watch?v=FckuEfBVGN0&t=5781s)
+
+## Buổi số 13
+
+- [Trình pháp Đạo hữu Đức Bình](https://www.youtube.com/watch?v=IAiC1vRu9Oc&t=957s)
+	- Khi quan sát yếu tố đất, ghi nhận xương cứng, bụng mềm có đúng không?
+- [Trình pháp Đạo hữu Trương Thanh](https://www.youtube.com/watch?v=IAiC1vRu9Oc&t=1660s)
+	- Khó khăn khi quan sát tính cứng ở những bộ phận không có sự tiếp xúc. Tưởng tượng chứ không phải cảm nhận thực tế
+- [Trình pháp Đạo hữu Hồng Diễm](https://www.youtube.com/watch?v=IAiC1vRu9Oc&t=2230s)
+	- Đùi, bắp chân đau nhức, khó chịu khi quan sát. Bước chân nặng khi đi kinh hành.
+- [Trình pháp Đạo hữu Thu Trang](https://www.youtube.com/watch?v=IAiC1vRu9Oc&t=2738s)
+	- Việc thay đổi đề mục thiền liên tục giữa tâm từ, hơi thở, quán tứ đại có tạo thói quen xấu không?
+- [Khi đi kinh hành thấy bước chân lúc nặng lúc nhẹ có đúng không?](https://www.youtube.com/watch?v=IAiC1vRu9Oc&t=3530s)
+- [Thắc mắc về trình tự quan sát sự đẩy từ dưới lên trên hay từ trên xuống dưới](https://www.youtube.com/watch?v=IAiC1vRu9Oc&t=3597s)
+- [Thấy cơ thể như một bộ xương cứng đang ngồi có đúng không hay là tưởng?](https://www.youtube.com/watch?v=IAiC1vRu9Oc&t=3878s)
