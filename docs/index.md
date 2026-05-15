@@ -165,3 +165,9 @@ Không có câu hỏi
 - [Khi đi kinh hành thấy bước chân lúc nặng lúc nhẹ có đúng không?](https://www.youtube.com/watch?v=IAiC1vRu9Oc&t=3530s)
 - [Thắc mắc về trình tự quan sát sự đẩy từ dưới lên trên hay từ trên xuống dưới](https://www.youtube.com/watch?v=IAiC1vRu9Oc&t=3597s)
 - [Thấy cơ thể như một bộ xương cứng đang ngồi có đúng không hay là tưởng?](https://www.youtube.com/watch?v=IAiC1vRu9Oc&t=3878s)
+
+## Buổi số 14
+
+- [Chủ động thở khi thấy khó thở có đúng không?](https://www.youtube.com/watch?v=vRQX35Iyl0U&t=3433s)
+- [Quan sát tính mềm theo thứ tự từ trên xuống dưới có đúng không?](https://www.youtube.com/watch?v=vRQX35Iyl0U&t=3468s)
+- [5 giác quan tai, mắt, mũi, lưỡi, thân đều có tính cứng và mềm, xương chỉ có tính cứng, có đúng không?](https://www.youtube.com/watch?v=vRQX35Iyl0U&t=3800s)
