@@ -171,3 +171,19 @@ Không có câu hỏi
 - [Chủ động thở khi thấy khó thở có đúng không?](https://www.youtube.com/watch?v=vRQX35Iyl0U&t=3433s)
 - [Quan sát tính mềm theo thứ tự từ trên xuống dưới có đúng không?](https://www.youtube.com/watch?v=vRQX35Iyl0U&t=3468s)
 - [5 giác quan tai, mắt, mũi, lưỡi, thân đều có tính cứng và mềm, xương chỉ có tính cứng, có đúng không?](https://www.youtube.com/watch?v=vRQX35Iyl0U&t=3800s)
+
+## Buổi số 15
+Không có câu hỏi
+
+## Buổi số 16
+
+- [Khi hành thiền có luồng thần kinh chạy sau thắt lưng gây đau. Hành thiền có tự chữa lành các bệnh vật lý không?](https://www.youtube.com/watch?v=claDr0qN_Rc&t=194s)
+- [Kiểm soát điều chỉnh hơi thở như nào cho đúng?](https://www.youtube.com/watch?v=claDr0qN_Rc&t=778s)
+- [Trình pháp Đạo hữu Tuyết Nguyễn](https://www.youtube.com/watch?v=claDr0qN_Rc&t=1054s)
+	-Làm gì khi tâm bị phóng dật?
+- [Mối liên hệ giữa thiền và giấc ngủ](https://www.youtube.com/watch?v=claDr0qN_Rc&t=1600s)
+
+## Buổi số 17
+
+- [Có thể đan xen nhiều đề mục trong 1 thời thiền hay không?](https://www.youtube.com/watch?v=dGjLQ5lGitM&t=700s)
+- [Trình pháp Đạo hữu Kim Võ](https://www.youtube.com/watch?v=dGjLQ5lGitM&t=945s)
