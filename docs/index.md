@@ -173,6 +173,7 @@ Không có câu hỏi
 - [5 giác quan tai, mắt, mũi, lưỡi, thân đều có tính cứng và mềm, xương chỉ có tính cứng, có đúng không?](https://www.youtube.com/watch?v=vRQX35Iyl0U&t=3800s)
 
 ## Buổi số 15
+
 Không có câu hỏi
 
 ## Buổi số 16
@@ -180,10 +181,51 @@ Không có câu hỏi
 - [Khi hành thiền có luồng thần kinh chạy sau thắt lưng gây đau. Hành thiền có tự chữa lành các bệnh vật lý không?](https://www.youtube.com/watch?v=claDr0qN_Rc&t=194s)
 - [Kiểm soát điều chỉnh hơi thở như nào cho đúng?](https://www.youtube.com/watch?v=claDr0qN_Rc&t=778s)
 - [Trình pháp Đạo hữu Tuyết Nguyễn](https://www.youtube.com/watch?v=claDr0qN_Rc&t=1054s)
-	-Làm gì khi tâm bị phóng dật?
+	- Làm gì khi tâm bị phóng dật?
 - [Mối liên hệ giữa thiền và giấc ngủ](https://www.youtube.com/watch?v=claDr0qN_Rc&t=1600s)
 
 ## Buổi số 17
 
 - [Có thể đan xen nhiều đề mục trong 1 thời thiền hay không?](https://www.youtube.com/watch?v=dGjLQ5lGitM&t=700s)
 - [Trình pháp Đạo hữu Kim Võ](https://www.youtube.com/watch?v=dGjLQ5lGitM&t=945s)
+
+## Buổi số 18
+
+Không có câu hỏi
+
+## Buổi số 19
+
+- [Ngọn lửa "sầu" (soka) và "ưu - nỗi khổ tâm" (Domanassa) giống nhau và khác nhau như thế nào?](https://www.youtube.com/watch?v=6_noDxHoHAU&t=2874s)
+- [ Làm sao dập tắt, ngăn chặn các ngọn lửa này trong cuộc sống hàng ngày?](https://www.youtube.com/watch?v=6_noDxHoHAU&t=3102s)
+
+## Buổi số 20
+
+- [Trong cuộc sống hàng ngày, ghi nhận nhiều yếu tố cùng một lúc có được không? Ghi nhận đơn thuần các hiện tượng trên thân (chuyển động, nặng nhẹ,  cứng mềm) mà không cần phân biệt rõ nó thuộc yếu tố gì (đất hay gió, ..vv) có được không?](https://www.youtube.com/watch?v=u1xBIyS9SM0&t=1668s)
+- [Khó khăn khi nhận diện tính thô ráp trong lúc thiền tọa so với khi làm các hoạt động sinh hoạt do có ít điểm xúc chạm](https://www.youtube.com/watch?v=u1xBIyS9SM0&t=1900s)
+- [Có thể tự chạm tay vào các vùng da trên cơ thể để nhận diện sự thô ráp được không?](https://www.youtube.com/watch?v=u1xBIyS9SM0&t=2265s)
+- [Cần xử lý ra sao khi đang nhận diện tính thô ráp nhưng lại cảm nhận thêm về sự khác biệt kích thước (tay to, tay nhỏ)?](https://www.youtube.com/watch?v=u1xBIyS9SM0&t=2492s)
+
+## Buổi số 21
+
+- [Khi quan sát yếu tố nâng giúp thân được giữ thẳng giúp tỉnh táo không hôn trầm có đúng không?](https://www.youtube.com/watch?v=jHOAwTTdSZw&t=3005s)
+- [Khó tách rời tính cứng và tính đẩy, quan sát cả hai cùng 1 lúc có được không?](https://www.youtube.com/watch?v=jHOAwTTdSZw&t=3198s)
+- [Giải thích về "tính cứng của yếu tố gió", "đặc tính ngược lại với đặc tính đẩy"?](https://www.youtube.com/watch?v=jHOAwTTdSZw&t=3463s)
+
+## Buổi số 22
+
+- [Khi bắt đầu quan sát tính nóng, nắm hai bàn tay vào nhau để tạo hơi nóng ban đầu giúp quan sát dễ hơn có được không?](https://www.youtube.com/watch?v=JP6w2JDpQZo&t=3174s)
+- [Khi đặt tay lên chân thì thấy tay nóng nhưng phần tiếp xúc ở chân thì mát. Nên tập trung vào phần tay (nóng) hay phần chân (mát), hay quan sát cả hai cùng một lúc?](https://www.youtube.com/watch?v=JP6w2JDpQZo&t=3371s)
+- [Khi quan sát hơi thở, cảm nhận hít vào mát, thở ra ấm có đúng không?](https://www.youtube.com/watch?v=JP6w2JDpQZo&t=3763s)
+
+
+## Buổi số 23
+
+Không có câu hỏi
+
+## Buổi số 24
+
+- [Vì sao máu lưu thông theo vòng tròn? Khó quan sát tính chảy của nước mắt, nước tiểu](https://www.youtube.com/watch?v=-YDR-Voj3Dk&t=3230s)
+- [Khi quan sát hơi thở cảm thấy cơ thể tê và nóng. Cảm giác đó thuộc yếu tố nào?](https://www.youtube.com/watch?v=-YDR-Voj3Dk&t=3582s)
+- [Dễ cảm nhận tính chảy của nước bọt, mồ hôi nhưng khó cảm nhận tính chảy của máu](https://www.youtube.com/watch?v=-YDR-Voj3Dk&t=3870s)
+
+
