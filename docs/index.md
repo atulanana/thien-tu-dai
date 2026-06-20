@@ -228,4 +228,18 @@ Không có câu hỏi
 - [Khi quan sát hơi thở cảm thấy cơ thể tê và nóng. Cảm giác đó thuộc yếu tố nào?](https://www.youtube.com/watch?v=-YDR-Voj3Dk&t=3582s)
 - [Dễ cảm nhận tính chảy của nước bọt, mồ hôi nhưng khó cảm nhận tính chảy của máu](https://www.youtube.com/watch?v=-YDR-Voj3Dk&t=3870s)
 
+## Buổi số 25
+
+- [Quan sát đan xen tính cứng và tính mềm có được không?](https://www.youtube.com/watch?v=55Wvk45eleI&t=3410s)
+- [Trình pháp đạo hữu Phương Tô](https://www.youtube.com/watch?v=55Wvk45eleI&t=3560s)
+
+## Buổi số 26
+
+- [Có nên quan sát đồng thời tính đẩy và nâng ở bụng khi quan sát yếu tố gió không?](https://www.youtube.com/watch?v=0h39GQm1c0k&t=2944s)
+- [Cảm giác thân bồng bềnh khi quan sát yếu tố gió, căng kéo khi quan sát yếu tố đất](https://www.youtube.com/watch?v=0h39GQm1c0k&t=3085s)
+- [Cảm thấy có luồng gió thổi mạnh qua tai kèm theo tiếng rít khi quan sát hơi thở](https://www.youtube.com/watch?v=0h39GQm1c0k&t=4087s)
+- [ Khởi tâm tác ý nói chuyện với vùng cơ thể bị đau để xoa dịu nó có đúng pháp không?](https://www.youtube.com/watch?v=0h39GQm1c0k&t=4500s)
+- [Cảm nhận sức nóng/sức nặng ở chỗ xúc chạm của hơi thở; và luôn thấy trạng thái "nặng" trong các oai nghi đời sống hàng ngày](https://www.youtube.com/watch?v=0h39GQm1c0k&t=4744s)
+- [Đang bị bệnh (ho) làm gián đoạn việc ngồi thiền thì nên chữa bệnh trước rồi thiền sau, hay tiếp tục thiền?](https://www.youtube.com/watch?v=0h39GQm1c0k&t=5400s)
+
 
